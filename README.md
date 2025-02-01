@@ -5,7 +5,7 @@ software developer (Junior)
 ---------------------------
 
 *   🌍  I'm based in Bangkok/Thailand
-*   ✉️  You can contact me at [pure111145@gmail.com](mailto:jpspure@gmail.com)
+*   ✉️  You can contact me at [jpspure@gmail.com](mailto:jpspure@gmail.com)
 
 ### Skills
 
